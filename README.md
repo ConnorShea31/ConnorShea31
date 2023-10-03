@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Connor Shea
+- 📫 How to reach me: connor.shea@wsu.edu
